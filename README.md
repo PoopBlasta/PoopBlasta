@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PoopBlasta
+- 👀 I’m interested in Blastin'
+- 🌱 I’m currently learning uhhhh
+- 💞️ I’m looking to collaborate on nothing leave me alone
+- 📫 How to reach me traverse the fog
+- 😄 Pronouns: Squire/Liege
+- ⚡ Fun fact: There is a network of tunnels that connects all of the Costcos in the States
